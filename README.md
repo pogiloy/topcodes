@@ -1,1 +1,3 @@
 # topcodes
+
+I hate DOTA
